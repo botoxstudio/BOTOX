@@ -23,4 +23,4 @@ A ready-to-launch meme token on Binance Smart Chain (BSC) — perfect for market
 
 ## 🔗 Contact:
 Telegram: [@khhshk](https://t.me/khhshk)  
-Email: tokencreator369@gmail.com
+Email: tokencreator6@gmail.com
